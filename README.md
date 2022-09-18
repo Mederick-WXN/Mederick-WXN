@@ -14,7 +14,7 @@
 
 - 📝 I regularly write articles on [coming soon](coming soon)
 
-- 📫 How to reach me **mederick.waxin@hotmail.com**
+- 📫 How to reach me **MP**
 
 - 📄 Know about my experiences [coming soon](coming soon)
 
