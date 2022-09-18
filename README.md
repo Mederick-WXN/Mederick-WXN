@@ -14,7 +14,7 @@
 
 - 📝 I regularly write articles on [coming soon](coming soon)
 
-- 📫 How to reach me **MP**
+- 📫 How to reach me **Look at the commit 👀**
 
 - 📄 Know about my experiences [coming soon](coming soon)
 
