@@ -6,7 +6,7 @@
 
 - 👨🏻‍🎓 I'm currently student at The National Engineering College of South Brittany of Vannes in the specialization cyberdefense
 
-- 💻 I'm currently web and mobile developer for Association-Prisme since 1 year
+- 💻 I'm currently *** 
 
 - 🌱 I’m currently learning **Laravel for creating my future blog**
 
